@@ -25,9 +25,7 @@
   </a>
   
 </a>
-<a href="https://instagram.com/himanshuuu.rajput" target="blank">
-    <img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/instagram.svg" alt="himanshuuu.rajput" height="30" width="40" />
-  </a>
+
 </p>
 
 ---
