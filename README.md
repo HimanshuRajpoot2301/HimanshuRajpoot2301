@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **hr3777665@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1QvMxQcAO4JrmXlloEs9EvQtjSa3HAzQL/view?usp=sharing](https://drive.google.com/file/d/1QvMxQcAO4JrmXlloEs9EvQtjSa3HAzQL/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1Fn7JWiXTcYn0va0s_6qyLJtdeANDS-th/view?usp=sharing]([https://drive.google.com/file/d/1QvMxQcAO4JrmXlloEs9EvQtjSa3HAzQL/view?usp=sharing](https://drive.google.com/file/d/1Fn7JWiXTcYn0va0s_6qyLJtdeANDS-th/view?usp=sharing))
 
 
 ---
